@@ -52,7 +52,7 @@ need to watch it again so I felt at ease with it, and then I added what was left
 
 ## Author
 
-- Website - [Add your name here](https://github.com/EkaAbashidze)
+- Website - [Add your name here](https://github.com/Dachi-Papashvili88)
 
 
 
